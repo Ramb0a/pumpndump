@@ -6,6 +6,10 @@ The dump is coming.
 
 ## FAQ 
 
+**Who Created PumpnDump?
+
+The Three Satoshis
+
 **What is the World?** 
 
 ![Whale Map](whale-map.jpg)
