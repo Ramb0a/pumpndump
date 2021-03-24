@@ -1,4 +1,4 @@
-![coin logo](coin-logo.jpg)
+![coin logo](coin_logo.jpg)
 
 # THe PuMp Is N3AR!!!!!!!!!
 
