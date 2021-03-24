@@ -12,6 +12,6 @@ The dump is coming.
 
 The Three Satoshis
 
-**What is the World?** 
+**What in the World?** 
 
 ![Whale Map](whale-map.jpg)
