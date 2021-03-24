@@ -12,6 +12,8 @@ The dump is coming.
 
 The Three Satoshis
 
+![New Whale Order](NewWhaleOrder.jpg)
+
 **What in the World?** 
 
 ![Whale Map](whale-map.jpg)
