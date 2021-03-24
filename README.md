@@ -6,13 +6,13 @@
 
 The dump is coming.
 
+![New Whale Order](nwo.png)
+
 ## FAQ 
 
 **Who Created PumpnDump?**
 
 The Three Satoshis
-
-![New Whale Order](nwo.png)
 
 **What in the World?** 
 
