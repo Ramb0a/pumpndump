@@ -8,7 +8,7 @@ The dump is coming.
 
 ## FAQ 
 
-**Who Created PumpnDump?
+**Who Created PumpnDump?**
 
 The Three Satoshis
 
