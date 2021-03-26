@@ -8,6 +8,8 @@ The dump is coming.
 
 ![New Whale Order](nwo.png)
 
+![Suez](suez.png) 
+
 ## FAQ 
 
 **Who Created PumpnDump?**
