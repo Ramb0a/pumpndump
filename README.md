@@ -14,7 +14,7 @@ Ride the Whale. It's Magic.
 
 ![Drowning in case](drown.png)
 
-![Dumping to the ocean](garbage.png)
+![Dumping to the ocean](garbage.jpg)
 
 ## FAQ 
 
