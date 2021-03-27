@@ -25,11 +25,12 @@ The Three Satoshis
 
 
 Health Rituals for bringing about the dumpening:
+* **Juice Cleansing** - Buy inorganic fruits and vegetables from the market. Wash items for 2-4 hours until they turn into clumpy juice. Throw away without consuming and begin again. Repeat 4 times daily.
+* **Fasting** - Go to pharmacy - preferable one with self checkout. Get on longest service line available and complain about speed of checkout. Demand to know why the line is not moving faster. Attempt to engage with customers in front of you. 
+
 <video width="320" height="240" controls>
   <source src="fruit.MOV" type="video/mp4">
 </video>
-* **Juice Cleansing** - Buy inorganic fruits and vegetables from the market. Wash items for 2-4 hours until they turn into clumpy juice. Throw away without consuming and begin again. Repeat 4 times daily.
-* **Fasting** - Go to pharmacy - preferable one with self checkout. Get on longest service line available and complain about speed of checkout. Demand to know why the line is not moving faster. Attempt to engage with customers in front of you. 
 
 
 
