@@ -8,6 +8,8 @@ The dump is coming.
 
 ![New Whale Order](nwo.png)
 
+Ride the Whale.It's Magic.
+
 ![Suez](suez.png) 
 
 ## FAQ 
