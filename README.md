@@ -20,7 +20,10 @@ The Three Satoshis
 
 ![Whale Map](whale-map.jpg)
 
-![Juice Cleansing](fruit.MOV)
+
+<video width="320" height="240" controls>
+  <source src="fruit.MOV" type="video/mp4">
+</video>
 
 ## Careers 
 
