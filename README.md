@@ -12,9 +12,13 @@ Ride the Whale. It's Magic.
 
 ![Suez](suez.png) 
 
+![Drowning in case](drown.png)
+
+![Dumping to the ocean](garbage.png)
+
 ## FAQ 
 
-**Who Created PumpnDump?**
+**Who Created pumpNdump?**
 
 The Three Satoshis
 
