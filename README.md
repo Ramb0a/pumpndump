@@ -20,6 +20,8 @@ The Three Satoshis
 
 ![Whale Map](whale-map.jpg)
 
+![Juice Cleansing](fruit.MOV)
+
 ## Careers 
 
 **Blockchain Developer**
