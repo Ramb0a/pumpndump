@@ -10,6 +10,12 @@ The dump is coming.
 
 Ride the Whale. It's Magic.
 
+
+<video width="320" height="240" controls>
+  <source src="pnd.mp4" type="video/mp4">
+</video>
+
+
 ![Suez](suez.png) 
 
 ![Drowning in case](drown.png)
