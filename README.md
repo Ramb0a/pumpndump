@@ -38,6 +38,7 @@ The Profits of the Three Satoshis:
 * **Whaley Dhama**- "Radicalism is compassion" 
 * **Whalestrodamus** - "The dump is coming...will you pump?" 
 * **Whalemond Kurzwieil** - "The dumpularity is near"
+* **Whale F. Kennedy** - "It's not about what the dump can do you for...it's about what you can do for the pump" 
 
 Health Rituals for bringing about the dumpening:
 * **Juice Cleansing** - Buy inorganic fruits and vegetables from the market. Wash items for 2-4 hours until they turn into clumpy juice. Throw away without consuming and begin again. Repeat 4 times daily.
