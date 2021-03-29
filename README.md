@@ -33,7 +33,11 @@ The Three Satoshis
 
 ![Whale Map](whale-map.jpg)
 
-
+The Profits of the Three Satoshis:
+* **heyZeus Cryto** - will return after these messages 
+* **Whaley Dhama**- "Radicalism is compassion" 
+* **Whalestrodamus** - "The dump is coming...will you pump?" 
+* **Whalemond Kurzwieil** - "The dumpularity is near"
 
 Health Rituals for bringing about the dumpening:
 * **Juice Cleansing** - Buy inorganic fruits and vegetables from the market. Wash items for 2-4 hours until they turn into clumpy juice. Throw away without consuming and begin again. Repeat 4 times daily.
