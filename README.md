@@ -8,9 +8,13 @@ The dump is coming.
 
 But don't take our word for it: 
 
+> "Life has become immeasurably better since I have been forced to stop taking it seriously. Pump&Dump"  - Whale Hunter S. Thompson
+
 > "pNd is the most fun I have had in Crypto since MtGox!" - Moby Dickens author of *A Whale of Two Cities* 
 
 > "I may be crazy, but the pNd keeps me from going insane" - Whaleon Jennings
+
+> "If you give a person a fish, they'll fish for a day. But if you train a person to fish, they'll pump and dump for a lifetime." - Dan Qwhale
 
 > "“Dreams have only one owner at a time. That's why dreamers hodl pNd.” - Whaleyum Faulker 
 
