@@ -12,6 +12,8 @@ But don't take our word for it:
 
 > "I may be crazy, but the pNd keeps me from going insane" - Whaleon Jennings
 
+> "“Dreams have only one owner at a time. That's why dreamers hodl pNd.” - Whaleyum Faulker 
+
 > "Ride the Whale...It's Magic" - David [Blainville](https://en.wikipedia.org/wiki/Blainville%27s_beaked_whale), street magician 
 
 ![New Whale Order](nwo.png)
