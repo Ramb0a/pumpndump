@@ -10,6 +10,8 @@ But don't take our word for it:
 
 > "pNd is the most fun I have had in Crypto since MtGox!" - Moby Dickens author of *A Whale of Two Cities* 
 
+> "I may be crazy, but the pNd keeps me from going insane" - Whaleon Jennings
+
 ![New Whale Order](nwo.png)
 
 Ride the Whale. It's Magic.
