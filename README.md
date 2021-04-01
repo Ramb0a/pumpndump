@@ -10,6 +10,8 @@ The dump is coming.
 
 Ride the Whale. It's Magic.
 
+> "pNd is the most fun I have had in Crypto since MtGox!" - Moby Dickens author of *A Whale of Two Cities* 
+
 
 <video width="320" height="240" controls>
   <source src="pnd.mp4" type="video/mp4">
