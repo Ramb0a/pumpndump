@@ -12,9 +12,9 @@ But don't take our word for it:
 
 > "I may be crazy, but the pNd keeps me from going insane" - Whaleon Jennings
 
-![New Whale Order](nwo.png)
+> "Ride the Whale...It's Magic" - David [Blainville](https://en.wikipedia.org/wiki/Blainville%27s_beaked_whale), street magician 
 
-Ride the Whale. It's Magic.
+![New Whale Order](nwo.png)
 
 
 <video width="320" height="240" controls>
