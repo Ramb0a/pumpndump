@@ -45,12 +45,16 @@ The Three Satoshis
 
 ![Whale Map](whale-map.jpg)
 
+**Your beliefs don't seem credible - Who Are Some Famous Followers of the Satoshi?**
+
 The Profits of the Three Satoshis:
 * **heyZeus Cryto** - will return after these messages 
 * **Whaley Dhama**- "Radicalism is compassion" 
 * **Whalestrodamus** - "The dump is coming...will you pump?" 
 * **Whalemond Kurzwieil** - "The dumpularity is near"
 * **Whale F. Kennedy** - "It's not about what the dump can do you for...it's about what you can do for the pump" 
+
+**How Do I Help Bring About The Dump?**
 
 Health Rituals for bringing about the dumpening:
 * **Juice Cleansing** - Buy inorganic fruits and vegetables from the market. Wash items for 2-4 hours until they turn into clumpy juice. Throw away without consuming and begin again. Repeat 4 times daily.
@@ -60,7 +64,9 @@ Health Rituals for bringing about the dumpening:
   <source src="fruit.MOV" type="video/mp4">
 </video>
 
+**What Was The Recent "Fat Earth" Controversy All About?
 
+While we do believe that our home planet has put on too much weight, we are offended by claims our critics are making that we are "Fat Earthers." We prefer more planet positve and appropriate names for our stance - such as "Hour Glass Earthers" or "Earth+" 
 
 ## Careers 
 
