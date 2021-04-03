@@ -8,7 +8,7 @@ The dump is coming.
 
 But don't take our word for it: 
 
-> "Life has become immeasurably better since I have been forced to stop taking it seriously. Pump&Dump"  - Whale Hunter S. Thompson
+> "Life has become immeasurably better since I have been forced to stop taking it seriously. Pump&Dump"  - WhaleHunter S. Thompson
 
 > "pNd is the most fun I have had in Crypto since MtGox!" - Moby Dickens author of *A Whale of Two Cities* 
 
@@ -47,7 +47,7 @@ The Three Satoshis
 
 ### Your beliefs don't seem credible - Who Are Some Famous Followers of the Satoshi?
 
-The Profits of the Three Satoshis:
+Some Profits of the Three Satoshis include:
 * **heyZeus Cryto** - will return after these messages 
 * **Whaley Dhama**- "Radicalism is compassion" 
 * **Whalestrodamus** - "The dump is coming...will you pump?" 
