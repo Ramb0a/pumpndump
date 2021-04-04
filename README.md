@@ -11,7 +11,7 @@ symbol of the Pump: 🐋 pNd
 
 The dump is coming.
 
-![pNd](pnd.svg)
+![pNd](pNd.svg)
 
 But don't take our word for it: 
 
