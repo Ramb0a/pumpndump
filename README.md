@@ -11,8 +11,6 @@ symbol of the Pump: 🐋 pNd
 
 The dump is coming.
 
-![pNd](pNd.svg)
-
 
 But don't take our word for it: 
 
@@ -43,6 +41,8 @@ But don't take our word for it:
 ![Drowning in case](drown.png)
 
 ![Dumping to the ocean](garbage.png)
+
+![pNd](pNd.svg)
 
 
 ## FAQ 
