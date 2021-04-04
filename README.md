@@ -42,8 +42,6 @@ But don't take our word for it:
 
 ![Dumping to the ocean](garbage.png)
 
-![pNd](pNd.svg)
-
 
 ## FAQ 
 
@@ -103,3 +101,7 @@ While we do believe that our home planet has put on too much weight, we are offe
 ## FIN
 
 c'est ne pas coin 
+
+
+![pNd](pNd.svg)
+
