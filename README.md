@@ -13,6 +13,8 @@ The dump is coming.
 
 ![pNd](pNd.svg)
 
+c'est ne pas coin 
+
 But don't take our word for it: 
 
 > "Life has become immeasurably better since I have been forced to stop taking it seriously. Pump&Dump"  - WhaleHunter S. Thompson
