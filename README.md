@@ -16,6 +16,8 @@ But don't take our word for it:
 
 > "If you give a person a fish, they'll fish for a day. But if you train a person to fish, they'll pump and dump for a lifetime." - Dan Qwhale
 
+> "pNd is a real coin in a fake world" - Wale
+
 > "“Dreams have only one owner at a time. That's why dreamers hodl pNd.” - Whaleyum Faulker 
 
 > "Ride the Whale...It's Magic" - David [Blainville](https://en.wikipedia.org/wiki/Blainville%27s_beaked_whale), street magician 
