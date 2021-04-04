@@ -76,6 +76,10 @@ Health Rituals for bringing about the dumpening:
 
 While we do believe that our home planet has put on too much weight, we are offended by claims our critics are making that we are "Fat Earthers." We prefer more planet positve and appropriate names for our stance - such as "Hour Glass Earthers" or "Earth+" 
 
+## Projects that will bring about the dumpening:
+
+[Council for Inclusive Capitalism w/ the Vatican](https://www.inclusivecapitalism.com/) The Pope + Visa are finally teaming up with SalesForce and all the other Avengers to fix Captialism once and for all!!!!!!
+
 ## Careers 
 
 **Blockchain Developer**
