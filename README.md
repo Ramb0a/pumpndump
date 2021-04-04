@@ -13,7 +13,6 @@ The dump is coming.
 
 ![pNd](pNd.svg)
 
-c'est ne pas coin 
 
 But don't take our word for it: 
 
@@ -99,3 +98,8 @@ While we do believe that our home planet has put on too much weight, we are offe
     * Experience in PHP, Visual Basic, Java a must.
 
 [Contact Us](https://www.reddit.com/r/crypto/)
+
+
+## FIN
+
+c'est ne pas coin 
