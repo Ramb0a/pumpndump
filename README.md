@@ -4,7 +4,7 @@
 
 Address of the PumP (pNd): 0xB869599Fd38f076A690369760B8815F67C4e2075
 
-symbol of the Pump: pNd
+symbol of the Pump: 🐋 pNd
 
 
 ![Free willy](willy.gif)
