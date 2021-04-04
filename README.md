@@ -11,6 +11,8 @@ symbol of the Pump: 🐋 pNd
 
 The dump is coming.
 
+![pNd](pnd.svg)
+
 But don't take our word for it: 
 
 > "Life has become immeasurably better since I have been forced to stop taking it seriously. Pump&Dump"  - WhaleHunter S. Thompson
