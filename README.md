@@ -103,6 +103,15 @@ While we do believe that our home planet has put on too much weight, we are offe
 
 [Contact Us](https://www.reddit.com/r/crypto/)
 
+[one day speculator will buy all the air
+not to breathe, only for hodl](https://cheapeth.org/)
+
+but we don't care
+
+because we stole ocean
+
+from stupid whales and dolphin nose bottle
+
 
 ## FIN
 
