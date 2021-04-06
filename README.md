@@ -76,6 +76,18 @@ Health Rituals for bringing about the dumpening:
 
 [Council for Inclusive Capitalism w/ the Vatican](https://www.inclusivecapitalism.com/) The Pope + Visa are finally teaming up with SalesForce and all the other Avengers to fix Captialism once and for all!!!!!!
 
+^^^^^^
+
+[one day speculator will buy all the air](https://cheapeth.org/)
+
+[not to breathe, only for hodl](https://cheapeth.org/)
+
+but we don't care
+
+because we stole ocean
+
+from stupid whales and dolphin nose bottle
+
 ### What Was The Recent "Fat Earth" Controversy All About?
 
 While we do believe that our home planet has put on too much weight, we are offended by claims our critics are making that we are "Fat Earthers." We prefer more planet positve and appropriate names for our stance - such as "Hour Glass Earthers" or "Earth+" 
@@ -102,15 +114,6 @@ While we do believe that our home planet has put on too much weight, we are offe
     * Experience in PHP, Visual Basic, Java a must.
 
 [Contact Us](https://www.reddit.com/r/crypto/)
-
-[one day speculator will buy all the air
-not to breathe, only for hodl](https://cheapeth.org/)
-
-but we don't care
-
-because we stole ocean
-
-from stupid whales and dolphin nose bottle
 
 
 ## FIN
