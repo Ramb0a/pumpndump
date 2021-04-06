@@ -84,9 +84,9 @@ Health Rituals for bringing about the dumpening:
 
 but we don't care
 
-because we stole ocean
+because we pumped the ocean
 
-from stupid whales and dolphin nose bottle
+from stupid whales and bottle nose dolphin
 
 ### What Was The Recent "Fat Earth" Controversy All About?
 
